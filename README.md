@@ -1,1 +1,1 @@
-# Wypo-yczanie-nart
+# Wypożyczanie-nart
